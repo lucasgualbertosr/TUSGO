@@ -150,9 +150,169 @@ Olha ele aí doutor
 Olha ele aí doutor  
 Isso é roda de malandro  
 Respeite por favor (2x)  
-  
-  
 
+## Malandros - É madrugada agora vou chamar
+É madrugada  
+agora vou chamar (2x)  
+  
+Catimbozeiro não dorme  
+Deixa ele chegar (2x)  
+  
+Vem Zé Pilintra,  
+Zé do Coco e Pretinho (2x)  
+  
+Vem Navalha e Miguel,  
+chegando de mansinho (2x)  
+  
+E lá da praia  
+vem Maria do Cais (2x)  
+  
+Terno branco, almirante  
+Se promete ele faz (2x)  
+  
+Sua alegria,  
+faz curar qualquer dor (2x)  
+  
+Se é malandro de umbanda  
+Trabalha com amor  (2x)  
+  
+Zoa atabaque  
+que acabou de chegar (2x)  
+  
+Veio malandro  
+e malandra para nos ajudar (2x)  
+
+## Maria do Cais - Maria Homem
+Noite linda  
+Noite de lua cheia  
+As estrelas lhe guiam moça  
+Da juremeira, (2x)  
+  
+Ela é bonita  
+Protetora das mulheres  
+Trabalhou no cais  
+No pesado, sim senhor  
+  
+Eu lhe pedi uma flor  
+Ela me deu um jardim  
+Jogou fagulhas de luz  
+Nos meus caminhos  
+  
+E até agora  
+Esqueci de perguntar  
+Nas estradas da vida  
+Como eu posso lhe chamar?  
+  
+Oi, Moça qual é o seu nome  
+Na beira do cais, sou maria homem (4x) (2x do início)  
+
+## Zé Pilintra - É malandro na direita ou na esquerda
+É malandro ele é malandro  
+Na direita ou na esquerda  
+Salve a sua malandragem  
+Zé Pilintra me proteja  
+  
+Estou sendo bem cuidado  
+Esse nego charmoso não brinca em serviço  
+Vai afastar coisa ruim  
+com seu punhal desfazendo feitiço  
+  
+Cada filho tem o que merece  
+Seu Zé é malandro  
+não promete nada  
+  
+No toque do atabaque  
+ele samba bonito dando gargalhada  
+  
+Eu falei  
+Firma o toque ogã  
+Zé Pilintra está descarregando  
+deixa fluir a energia  
+como é bonito nego trabalhando (2x do início)  
+
+## Zé Pilintra - Leva Fé Nesse Homem
+Leva fé, leva fé nesse homem  
+Que esse homem é de ajudar  
+Você pode gritar por seu nome  
+Toda vez que precisar (2x)  
+  
+Salve a sua batucada, sob a luz da Lua  
+Numa linda madrugada  
+Nas esquinas pelas ruas  
+E no seu samba tem muita cerveja, tem muita mulher  
+Mas também tem caridades  
+Que ele presta a quem quiser  
+  
+É pois é bate palma no samba do seu zé  
+Canta forte minha gente  
+Que esse samba é de fé (2x)  
+
+Se no teu caminhar encontrar algum perigo
+Chama o seu zé que ele passa contigo ele tem muita força, ele tem muito axé
+Ele chega na umbanda, gingando, cantando e sambando no pé
+Todo de branco vem malandreando e ajudando a quem tem fé
+
+Saravá seu zé
+Ê, saravá seu zé, seu zé
+Ê saravá seu zé
+Saravá seu zé na umbanda e salve a força da fé (2x do início)  
+
+## Maria Navalha - Malandro se na minha cara der/Não mexa com essa mulher/Botequim, botequim, Cabaré lhe chama
+Malandro se na minha cara der  
+Pode fazer testamento  
+Se despedir da sua mulher (2x)  
+
+Se tiver filho deixe uma recordação  
+Cara que mamãe beijou  
+Vagabundo nenhum ponhe a mão  
+  
+Cuidado cuidado seu zé  
+Não mexa com essa mulher (2x)  
+
+Mas se você pisar de vagarinho  
+Ela abre seus caminhos  
+Ela abre seus caminhos  
+  
+Mas se você debochar  
+Maria navalha bota pra quebrar  
+  
+Eu falei pra não mexer  
+Eu falei pra não brincar  
+que os rivais ela retalha (2x)  
+  
+Oi lá o morro  
+Chamam ela de Maria  
+mas na alta burguesia  
+chamam ela de Navalha  
+  
+Botequim, botequim  
+Cabaré lhe chama  
+Botequim, botequim  
+Cabaré lhe chama  
+Mas ela é mulher de fama (2x)  
+
+## Malandros - Joguei limão pro o alto e aparei no canivete/Uma vela não ilumina uma favela/Apaga a luz acenda as velas/Eu hoje vou subir la na favela
+Joguei limão pro o alto e aparei no canivete  
+Em conversa de malandro otário não se mete (2×)  
+  
+Uma vela não ilumina uma favela,  
+Mas vai iluminar o caminho da casa dela (2×)  
+  
+Apaga a luz acenda as velas  
+Que a malandragem tomou conta da favela (2×)  
+  
+Malandro te digo meu irmão,  
+Que essa nega mexeu com meu coração (2×)  
+  
+Eu hoje vou subir la na favela,  
+Vou falar pro marido dela  
+Que me apaixonei por ela  
+Malandro eu posso até correr perigo  
+Mas se eu desce do morro  
+A nega desce comigo  
+
+
+  
 
 
 
