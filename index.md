@@ -26,6 +26,56 @@ Zé Pilintra. aqui chegou
 Eita Zé que é arretado  
 Oxalá quem te mandou (2x)  
 
+## Zé Pilintra - Leva Fé Nesse Homem
+Leva fé, leva fé nesse homem  
+Que esse homem é de ajudar  
+Você pode gritar por seu nome  
+Toda vez que precisar (2x)  
+  
+Salve a sua batucada, sob a luz da Lua  
+Numa linda madrugada  
+Nas esquinas pelas ruas  
+E no seu samba tem muita cerveja, tem muita mulher  
+Mas também tem caridades  
+Que ele presta a quem quiser  
+  
+É pois é bate palma no samba do seu zé  
+Canta forte minha gente  
+Que esse samba é de fé (2x)  
+
+Se no teu caminhar encontrar algum perigo
+Chama o seu zé que ele passa contigo ele tem muita força, ele tem muito axé
+Ele chega na umbanda, gingando, cantando e sambando no pé
+Todo de branco vem malandreando e ajudando a quem tem fé
+
+Saravá seu zé
+Ê, saravá seu zé, seu zé
+Ê saravá seu zé
+Saravá seu zé na umbanda e salve a força da fé (2x do início)  
+
+## Zé do Morro -  Rei do Catimbó
+O moço é que eu cheguei agora  
+E eu não quero ir embora  
+Desse samba  
+  
+Pois quando  
+Otário repara a ginga  
+Ai malandro se vinga quando pensa que é dança  
+  
+E quando ele desce do seu morro  
+Geral pede socorro  
+A zé pilantra  
+Pois quando lhe falta sagacidade  
+Ele traz a malandragem de novo pra sua vida  
+  
+Ele foi rei lá no catimbó  
+Em otário ele da nó  
+Seu zé do morro diz que eu não ando só  
+Ele passou lá no juremé  
+Quem planta há de colher  
+Malandro igual a esse há de nascer (2x)  
+
+
 ## Zé Pilintra - Eu Chorei por não ter Pai
 Eu chorei por não ter pai  
 Deus me deu um protetor  
@@ -45,43 +95,8 @@ Nunca me deixou cair
 Pode me faltar o dinheiro  
 Pode me faltar o amor  
 Mas se falta seu Zé Pilintra  
-Minhas vida acabou (2x)  
+Minhas vida acabou (2x) 
 
-## Zé Pilintra - Leva fé nesse homem
-Leva fé, leva fé nesse homem  
-Que esse homem é de ajudar  
-Você pode gritar por seu nome  
-Toda vez que precisar  
-  
-Leva fé, leva fé nesse homem  
-Que esse homem é de ajudar  
-Você pode gritar por seu nome  
-Toda vez que precisar  
-  
-Salve a sua batucada, sob a luz da Lua  
-Numa linda madrugada  
-Nas esquinas pelas ruas  
-E no seu samba tem muita cerveja, tem muita mulher  
-Mas também tem caridades  
-Que ele presta a quem quiser  
-  
-É pois é bate palma no samba do seu zé  
-Canta forte minha gente  
-Que esse samba é de fé  
-É pois é bate palma no samba do seu zé  
-Canta forte minha gente  
-Que esse samba é de fé  
-  
-Se no teu caminhar encontrar algum perigo  
-Chama o seu zé que ele passa contigo ele tem muita força, ele tem muito axé  
-Ele chega na umbanda, gingando, cantando e sambando no pé  
-Todo de branco vem malandreando e ajudando a quem tem fé  
-  
-Saravá seu zé  
-Ê, saravá seu zé, seu zé  
-Ê saravá seu zé  
-Saravá seu zé na umbanda e salve a força da fé  
-  
 ## Malandros - Saia do meio, arreda aí, vai lá pro canto
 Saia do meio, arreda aí, vai lá pro canto  
 Saia do meio, arreda aí, vai lá pro canto  
@@ -148,8 +163,7 @@ Com malandrinho da Estrada
   
 E eu disse que vai  
 Vai ter volta (2x)  
-
-
+  
 Quando eu estava no chão  
 A malandragem me aparou  
 Malandrinho me jurou  
@@ -264,55 +278,6 @@ Firma o toque ogã
 Zé Pilintra está descarregando  
 deixa fluir a energia  
 como é bonito nego trabalhando (2x do início)  
-
-## Zé Pilintra - Leva Fé Nesse Homem
-Leva fé, leva fé nesse homem  
-Que esse homem é de ajudar  
-Você pode gritar por seu nome  
-Toda vez que precisar (2x)  
-  
-Salve a sua batucada, sob a luz da Lua  
-Numa linda madrugada  
-Nas esquinas pelas ruas  
-E no seu samba tem muita cerveja, tem muita mulher  
-Mas também tem caridades  
-Que ele presta a quem quiser  
-  
-É pois é bate palma no samba do seu zé  
-Canta forte minha gente  
-Que esse samba é de fé (2x)  
-
-Se no teu caminhar encontrar algum perigo
-Chama o seu zé que ele passa contigo ele tem muita força, ele tem muito axé
-Ele chega na umbanda, gingando, cantando e sambando no pé
-Todo de branco vem malandreando e ajudando a quem tem fé
-
-Saravá seu zé
-Ê, saravá seu zé, seu zé
-Ê saravá seu zé
-Saravá seu zé na umbanda e salve a força da fé (2x do início)  
-
-## Zé do Morro -  Rei do Catimbó
-O moço é que eu cheguei agora  
-E eu não quero ir embora  
-Desse samba  
-  
-Pois quando  
-Otário repara a ginga  
-Ai malandro se vinga quando pensa que é dança  
-  
-E quando ele desce do seu morro  
-Geral pede socorro  
-A zé pilantra  
-Pois quando lhe falta sagacidade  
-Ele traz a malandragem de novo pra sua vida  
-  
-Ele foi rei lá no catimbó  
-Em otário ele da nó  
-Seu zé do morro diz que eu não ando só  
-Ele passou lá no juremé  
-Quem planta há de colher  
-Malandro igual a esse há de nascer (2x)  
 
 ## Maria Navalha - Malandro se na minha cara der/Não mexa com essa mulher/Botequim, botequim, Cabaré lhe chama
 Malandro se na minha cara der  
