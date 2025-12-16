@@ -153,7 +153,98 @@ Isso não é mulher
 Ela joga baralho  
 Ela puxa a navalha  
 Risca a faca no chão (2x) (2x do início)  
+
+## Maria Navalha - Ela Traz uma navalha que corta o mal e a injustiça
+Ela traz uma navalha  
+Que corta o mal e a injustiça  
+Protegida de Zé Pilintra  
+Maria Navalha não brinca  
   
+Caminhou de rua em rua  
+Em busca de moradia  
+Foi na beira do cais  
+Que conheceu a boêmia  
+  
+Ela é de laroiê  
+Ela é de mojubá  
+Ela é Maria Navalha  
+Que vem aqui nos ajudar  
+  
+Laroiê  
+Laroiê, laroiê  
+Ela é mulher de fé, laroiê  
+Foi na madrugada  
+Que a Navalha deu a sua gargalhada  
+  
+Trabalhava na madrugada  
+Trabalhava lá no cais  
+Maria Navalha da calunga  
+Faz o que você não faz  
+  
+Foi na subida de uma serra  
+Que eu a vi trabalhar  
+Junto com Zé Pilintra  
+Para todo mal levar  
+  
+Ela é uma malandra de fé  
+Ela é uma malandra de luz  
+Ela é Maria Navalha  
+Que não teme a mal nenhum  
+  
+Laroiê  
+Laroiê, laroiê  
+Ela é mulher de fé, laroiê  
+Foi na madrugada  
+Que a Navalha deu a sua gargalhada  
+  
+Ela traz uma navalha  
+Que corta o mal e a injustiça  
+Protegida de Zé Pilintra  
+Maria Navalha não brinca  
+  
+Caminhou de rua em rua  
+Em busca de moradia  
+Foi na beira do cais  
+Que conheceu a boêmia  
+  
+Ela é de laroiê  
+Ela é de mojubá  
+Ela é Maria Navalha  
+Que vem aqui nos ajudar  
+  
+Laroiê  
+Laroiê, laroiê  
+Ela é mulher de fé, laroiê  
+Foi na madrugada  
+Que a Navalha deu a sua gargalhada  
+  
+Trabalhava na madrugada  
+Trabalhava lá no cais  
+Maria Navalha da calunga  
+Faz o que você não faz  
+  
+Foi na subida de uma serra  
+Que eu a vi trabalhar  
+Junto com Zé Pilintra  
+Para todo mal levar  
+  
+Ela é uma malandra de fé  
+Ela é uma malandra de luz  
+Ela é Maria Navalha  
+Que não teme a mal nenhum  
+  
+Laroiê  
+Laroiê, laroiê  
+Ela é mulher de fé, laroiê  
+Foi na madrugada  
+Que a Navalha deu a sua gargalhada  
+  
+Laroiê  
+Laroiê, laroiê  
+Ela é mulher de fé, laroiê  
+Foi na madrugada  
+Que a Navalha deu a sua gargalhada  
+
 ## Zé Pilintra - Eu Chorei por não ter Pai
 Eu chorei por não ter pai  
 Deus me deu um protetor  
@@ -174,6 +265,72 @@ Pode me faltar o dinheiro
 Pode me faltar o amor  
 Mas se falta seu Zé Pilintra  
 Minhas vida acabou (2x) 
+
+
+## Maria do Balaio - Pra você que não conhece
+
+Pra você que não conhece  
+Eu vou lhe apresentar  
+É a Maria do Balaio  
+Que acaba de chegar (2x)  
+  
+Sua saia a rodar  
+Com sete velas na mão  
+Ela quebra o feitiço e também amarração (2x)  
+  
+Ela gira no terreiro  
+Gira gira sem parar  
+Vai limpando seus filhos  
+Não deixa ninguém tombar (2x)  
+
+## Malandrinho da Estrada - Sambou, sambou, Malandrinho sambou
+Eu andava triste pela estrada  
+Eu acompanhava uma voz a me guiar  
+Continuei andando  
+Parei na encruzilhada  
+Eu então senti  
+Aquela voz a me deixar  
+  
+Era meia noite e o galo contava  
+De repente veio uma gargalhada pelo ar  
+  
+Em um piscar de olhos  
+Eu não acreditava  
+Estava na minha frente  
+Malandrinho da estrada  
+  
+Sambou sambou  
+Malandrinho sambou (2x)  
+  
+No meio da encruzilhada  
+Malandrinho sambou (2x)  
+
+## Baianos -  Balança porteira velha
+Balança porteira velha  
+Porteira balanceou  
+Balança porteira velha  
+Que os baianos saravou (2x)  
+  
+Galo cantou  
+Cantou de madrugada (2x)  
+  
+Oi, tá na hora, na hora da baianada (2x)  
+  
+Quem tem baiano pisa  
+Eu quero ver pisar (2x)  
+  
+Jesus salve a baianada   
+Aqui nesse congá (2x)  
+
+## Zé do Côco - Lá na Bahia tem capoeira
+La na Bahia tem capoeira  
+Tem macumba e tem dendê  
+Mas também tem Ze do Côco  
+Que trabalha p vencer  
+  
+Nosso senhor do bomfim  
+E jesus cristo, vem cura esse filho  
+E acaba essa dor sem fim (2x do início)  
 
 ## Malandros - Saia do meio, arreda aí, vai lá pro canto
 Saia do meio, arreda aí, vai lá pro canto  
