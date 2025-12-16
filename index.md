@@ -42,17 +42,17 @@ Que ele presta a quem quiser
 É pois é bate palma no samba do seu zé  
 Canta forte minha gente  
 Que esse samba é de fé (2x)  
-
-Se no teu caminhar encontrar algum perigo
-Chama o seu zé que ele passa contigo ele tem muita força, ele tem muito axé
-Ele chega na umbanda, gingando, cantando e sambando no pé
-Todo de branco vem malandreando e ajudando a quem tem fé
-
-Saravá seu zé
-Ê, saravá seu zé, seu zé
-Ê saravá seu zé
+  
+Se no teu caminhar encontrar algum perigo  
+Chama o seu zé que ele passa contigo ele tem muita força, ele tem muito axé  
+Ele chega na umbanda, gingando, cantando e sambando no pé  
+Todo de branco vem malandreando e ajudando a quem tem fé  
+  
+Saravá seu zé  
+Ê, saravá seu zé, seu zé  
+Ê saravá seu zé  
 Saravá seu zé na umbanda e salve a força da fé (2x do início)  
-
+  
 ## Zé do Morro -  Rei do Catimbó
 O moço é que eu cheguei agora  
 E eu não quero ir embora  
@@ -75,7 +75,85 @@ Ele passou lá no juremé
 Quem planta há de colher  
 Malandro igual a esse há de nascer (2x)  
 
+## Maria Bonita - Rainha dos Cangaceiros
 
+Ogã, prepare sua mão  
+esquente seu couro  
+que meu povo vai chegar  
+  
+Ogã, cante um ponto pra ela  
+chame todos em terra,  
+porque ela vai sambar  (2x do início)
+
+Guerreira, foi criada no sertão  
+se encantou por lampião  
+e foi viver sua paixão  
+  
+Maria, foi viver com o seu bando  
+8 anos no cangaço oi 
+mil histórias pra contar  
+  
+Bonita, destemida e arretada  
+bravamente ela lutou,  
+e o povo a exaltou  
+  
+Ela é formosa, bonita e faceira  
+morreu por um amor  
+e nunca desencantou (2x do início)  
+
+## Maria do Cais - Maria Homem
+Noite linda  
+Noite de lua cheia  
+As estrelas lhe guiam moça  
+Da juremeira, (2x)  
+  
+Ela é bonita  
+Protetora das mulheres  
+Trabalhou no cais  
+No pesado, sim senhor  
+  
+Eu lhe pedi uma flor  
+Ela me deu um jardim  
+Jogou fagulhas de luz  
+Nos meus caminhos  
+  
+E até agora  
+Esqueci de perguntar  
+Nas estradas da vida  
+Como eu posso lhe chamar?  
+  
+Oi, Moça qual é o seu nome  
+Na beira do cais, sou maria homem (4x) (2x do início)  
+
+## Corisco - Cangaceiro com luz de cura
+Me protege na peleja que é a vida  
+Mantém bem armada minha retaguarda (2x)  
+  
+Carrega a parceria antes caída  
+Seja pelos campos, vielas e calçadas (2x)  
+  
+Cangaceiro com luz de cura,  
+Cangaceiro traz luz na bala (2x)  
+  
+Já falhei muito nessa vida, amigo  
+Minha fé em Corisco é que não falha (2x)  
+  
+Cangaceiro com luz de cura  
+Cangaceiro traz luz na bala   
+Cangaceiro com luz de cura  
+Cangaceiro, Corisco não falha  
+
+## Maria Navalha - Pode me chamar de covarde
+Pode me chamar de covarde  
+Mas não abandono essa mulher (2x)  
+  
+Isso não é mulher  
+É uma tentação (2x)  
+  
+Ela joga baralho  
+Ela puxa a navalha  
+Risca a faca no chão (2x) (2x do início)  
+  
 ## Zé Pilintra - Eu Chorei por não ter Pai
 Eu chorei por não ter pai  
 Deus me deu um protetor  
@@ -115,17 +193,6 @@ Lá no alto da colina, ele mandou fazer (2x)
   
 É lá que malandro mora  
 É lá que malandro vai morrer (2x) (2x do início)  
-
-## Maria Navalha - Pode me chamar de covarde
-Pode me chamar de covarde  
-Mas não abandono essa mulher (2x)  
-  
-Isso não é mulher  
-É uma tentação (2x)  
-  
-Ela joga baralho  
-Ela puxa a navalha  
-Risca a faca no chão (2x) (2x do início)  
 
 ## Zé Pilintra - Boa noite pra quem é de boa noite
 Oh boa noite  
@@ -229,32 +296,8 @@ Zoa atabaque
 que acabou de chegar (2x)  
   
 Veio malandro  
-e malandra para nos ajudar (2x)  
-
-## Maria do Cais - Maria Homem
-Noite linda  
-Noite de lua cheia  
-As estrelas lhe guiam moça  
-Da juremeira, (2x)  
+e malandra para nos ajudar (2x)   
   
-Ela é bonita  
-Protetora das mulheres  
-Trabalhou no cais  
-No pesado, sim senhor  
-  
-Eu lhe pedi uma flor  
-Ela me deu um jardim  
-Jogou fagulhas de luz  
-Nos meus caminhos  
-  
-E até agora  
-Esqueci de perguntar  
-Nas estradas da vida  
-Como eu posso lhe chamar?  
-  
-Oi, Moça qual é o seu nome  
-Na beira do cais, sou maria homem (4x) (2x do início)  
-
 ## Zé Pilintra - É malandro na direita ou na esquerda
 É malandro ele é malandro  
 Na direita ou na esquerda  
